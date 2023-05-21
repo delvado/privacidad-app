@@ -1,30 +1,30 @@
-Política de Privacidad
+POLITICA DE PRIVACIDAD
 
-Esta Política de Privacidad describe cómo se recopilan, utilizan y protegen los datos personales cuando utilizas nuestra aplicación móvil PRECIOS HOY.
+ESTA POLITICA DE PRIVACIDAD DESCRIBE COMO SE RECOPILAN, UTILIZAN Y PROTEGEN LOS DATOS PERSONALES CUANDO UTILIZAS NUESTRA APLICACION MOVIL PRECIOS HOY.
 
-Recopilación de información
+RECOPILACION DE INFORMACION
 
-La Aplicación no recopila directamente información personal identificable de los usuarios.
+LA APLICACION NO RECOPILA DIRECTAMENTE INFORMACION PERSONAL IDENTIFICABLE DE LOS USUARIOS.
 
-Uso de la información
+USO DE LA INFORMACION
 
-La información no se recopila en la aplicación. No compartimos ni vendemos información personal a terceros.
+LA INFORMACION NO SE RECOPILA EN LA APLICACION. NO COMPARTIMOS NI VENDEMOS INFORMACION PERSONAL A TERCEROS.
 
-Protección de la información
+PROTECCION DE LA INFORMACION
 
-La información no se recopila en la aplicación. 
+LA INFORMACION NO SE RECOPILA EN LA APLICACION. 
 
-Enlaces externos
+ENLACES EXTERNOS
 
-La Aplicación puede contener enlaces a sitios web externos que no son operados por nosotros. No tenemos control sobre el contenido y las prácticas de privacidad de estos sitios y, por lo tanto, no asumimos ninguna responsabilidad por sus políticas de privacidad. Te recomendamos revisar las políticas de privacidad de estos sitios antes de proporcionarles cualquier información personal.
+LA APLICACION PUEDE CONTENER ENLACES A SITIOS WEB EXTERNOS QUE NO SON OPERADOS POR NOSOTROS. NO TENEMOS CONTROL SOBRE EL CONTENIDO Y LAS PRACTICAS DE PRIVACIDAD DE ESTOS SITIOS Y, POR LO TANTO, NO ASUMIMOS NINGUNA RESPONSABILIDAD POR SUS POLITICAS DE PRIVACIDAD. TE RECOMENDAMOS REVISAR LAS POLITICAS DE PRIVACIDAD DE ESTOS SITIOS ANTES DE PROPORCIONARLES CUALQUIER INFORMACION PERSONAL.
 
-Cambios en la Política de Privacidad
+CAMBIOS EN LA POLITICA DE PRIVACIDAD
 
-Esta Política de Privacidad puede actualizarse periódicamente. Te recomendamos revisar esta página regularmente para obtener cualquier cambio o actualización. El uso continuado de la Aplicación después de cualquier cambio en esta Política de Privacidad constituye tu aceptación de dichos cambios.
+ESTA POLITICA DE PRIVACIDAD PUEDE ACTUALIZARSE PERIODICAMENTE. TE RECOMENDAMOS REVISAR ESTA PAGINA REGULARMENTE PARA OBTENER CUALQUIER CAMBIO O ACTUALIZACION. EL USO CONTINUADO DE LA APLICACION DESPUES DE CUALQUIER CAMBIO EN ESTA POLITICA DE PRIVACIDAD CONSTITUYE TU ACEPTACION DE DICHOS CAMBIOS.
 
-Contacto
+CONTACTO
 
-Si tienes alguna pregunta o inquietud sobre esta Política de Privacidad, contáctanos a través de delvado@gmail.com.
+SI TIENES ALGUNA PREGUNTA O INQUIETUD SOBRE ESTA POLITICA DE PRIVACIDAD, CONTACTANOS A TRAVES DEL email: delvado@gmail.com
 
 
 
